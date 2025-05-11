@@ -9,7 +9,7 @@
 ## 🔗 Access the App
 
 **Launch PromoMuse here:**  
-👉 [PromoMuse]([https://partyrock.aws/](https://partyrock.aws/u/captain-soham/6h2Bhcerv/PromoMuse))
+👉 [PromoMuse](https://partyrock.aws/u/captain-soham/6h2Bhcerv/PromoMuse)
 
 
 ---
